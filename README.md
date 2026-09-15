@@ -2,7 +2,6 @@
 
 # olá sou a isabelly
 
-<https://youtu.be/RDlyuRTY544?si=7wUHrZS95MMKHzDy>
 
 CONTATO:
 
